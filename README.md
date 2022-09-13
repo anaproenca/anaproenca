@@ -1,0 +1,4 @@
+- 👋 oi,eu sou a ana vitória.
+- 👀 eu sou interessada em mangás, series e filmes. 
+- 🌱 eu estou estudando programação.
+- 📫 você pode me encontrar pelo email:ana.proenca.souza@escola.pr.gov.br.
